@@ -146,4 +146,6 @@ Feel free to reach out if you have any questions or suggestions!
 - sabaoonmj@gmail.com
 - yousaf.asimjan@gmail.com
 - rahil.haq04@gmail.com
+- aakashharen@gmail.com
+- wasayaamir5@gmail.com
 ---
