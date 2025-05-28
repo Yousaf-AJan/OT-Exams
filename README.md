@@ -142,4 +142,8 @@ We welcome contributions! To contribute:
 - Abdul Wasay Aamir
 
 Feel free to reach out if you have any questions or suggestions!
+- yoosufmohamedkamal@gmail.com
+- sabaoonmj@gmail.com
+- yousaf.asimjan@gmail.com
+- rahil.haq04@gmail.com
 ---
